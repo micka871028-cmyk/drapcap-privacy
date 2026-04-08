@@ -30,7 +30,7 @@ DrapCap est destiné à un public général (PEGI 3). Nous ne collectons pas sci
 
 ## 6. Contact
 
-Pour toute question : [votre email de contact]
+Pour toute question : micka871028@gmail.com
 
 ## 7. Modifications
 
